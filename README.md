@@ -1,4 +1,5 @@
 # computing-work
-Once upon a time, there was an ordinary human who studied in a local school in Singapore. He was depressed as his teachers were constantly giving him extra pressure and homework for no reasons at all.
+Once upon a time, there was an ordinary human who studied in a local school in Singapore. He was depressed as his teachers were constantly giving him extra pressure and homework for no reasons at all. So, after 6 years of endless studying and nobody to help him, he finally died of stress and exhaustion by jumping off a 50 story building. When he reached heaven, God spoke to him and said," Do you want another chance to do this right?" The human nodded his head and was sent down to earth once more, reborn. When he regrew from a baby, he was an ordinary human who studied in a local school in Singapore. He was depressed as his teachers were constantly giving him extra pressure and homework for no reasons at all. 
 However, he had his close friends which really cared about him and thus helped him with his homework and spent alot of time with him so that he would not be that sad. 
 In conclusion, teachers suck and friends are the ones who would help you through the tough times and would always lend a helping hand ahahahahah.
+The next time he went to heaven , God patted him on the back and said:"Good job"
